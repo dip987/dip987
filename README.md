@@ -1,1 +1,1 @@
-An attempt at botting real life
+Makeshift webpage - under construction
